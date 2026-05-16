@@ -1,5 +1,5 @@
 <div id="header" align="center">
 
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&cover_image=true&theme=novatorem&show_offline=true&background_color=ffffff&interchange=true&profanity=false&bar_color=fdddee&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&redirect=true)
+  <img src = "https://i1-e.pinimg.com/736x/27/34/1a/27341a674eb824559401e8789d52cd37.jpg" width = 300>
 
-  [ata](https://hondakiku.atabook.org/)⠀⠀⠀⠀⠀(ˆ ̳ , ̫ , ̳ˆ)"੭⠀⠀⠀⠀⠀[daily click](https://arab.org/click-to-help/palestine/)
+  [ata](https://hondakiku.atabook.org/)⠀⠀⠀⠀⠀            ᨳ(. ˘ ³(´ ˘ . )⠀⠀⠀⠀⠀     [daily click](https://arab.org/click-to-help/palestine/)
