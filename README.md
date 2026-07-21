@@ -1,5 +1,11 @@
 <div id="header" align="center">
 
-  <img src = "https://i1-e.pinimg.com/736x/27/34/1a/27341a674eb824559401e8789d52cd37.jpg" width = 300>
+  ꒰৯⠀⠀⠀ 𓏴◟ ̫◞◟ ̫◞ ꕮ ◟ ̫◞◟ ̫◞𓏴⠀⠀  ⠀໒꒱
 
-  [ata](https://hondakiku.atabook.org/)⠀⠀⠀⠀⠀            ᨳ(. ˘ ³(´ ˘ . )⠀⠀⠀⠀⠀     [daily click](https://arab.org/click-to-help/palestine/)
+
+  <img src = "https://i.pinimg.com/736x/82/31/c3/8231c3be40653a4bc27d202000c25c9b.jpg" width = 300>
+
+⠀⠀[ata](https://hondakiku.atabook.org/)⠀⠀⠀       ૮꒰ྀི⊃´ ꒳ `⊂ྀི꒱ა⠀⠀⠀       [daily click](https://arab.org/click-to-help/palestine/)  
+
+
+[ponytowns japan  ׅ ۫ ׁ♡ ۪ ۫◌](https://github.com/pt-walk-of-fame)‎
