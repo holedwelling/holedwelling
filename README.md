@@ -17,4 +17,6 @@ ${\textsf{\color{#ffe3f1} +all of my green names!!! i appreciate u all ♥︎}}$
 </details>
 </div>
 
+${\textsf{\color{#ffc9e7} PLS BMF i desperately need more friends⠀⠀ᘏ⑅ᘏ}}$
+
 <img src="https://komarev.com/ghpvc/?username=holedwelling&style=flat-square&color=ffdef1&label=angels🪽" alt="profile view counter" width="60" align="center">
