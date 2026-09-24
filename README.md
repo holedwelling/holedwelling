@@ -1,5 +1,5 @@
 <div id="header" align="center">
-spoke pony counter: 6
+spoke pony counter: 8
   
 [prns.cc](https://pronouns.cc/@coilshot) <img src="https://i.postimg.cc/zBzfB3FZ/tumblr-7d67f14ebe12b7a73d2742712ead9a76-ca37f9b9-250.gif" width="20"> [ata](https://hondakiku.atabook.org/)
 
