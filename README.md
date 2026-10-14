@@ -1,5 +1,7 @@
 <div id="header" align="center">
-spoke pony counter: 8
+<img src = "https://64.media.tumblr.com/1cb04b244a56e3c62b333585bba8d00c/d6ec2871b0b13c5f-b5/s250x400/e7a378ac66013222a704148d22635b675cb09ddf.gif" width = 250>
+  
+  spoke pony counter: 9
   
 [prns.cc](https://pronouns.cc/@coilshot) <img src="https://i.postimg.cc/zBzfB3FZ/tumblr-7d67f14ebe12b7a73d2742712ead9a76-ca37f9b9-250.gif" width="20"> [ata](https://hondakiku.atabook.org/)
 
@@ -21,4 +23,4 @@ ${\textsf{\color{#ffc9e7} PLS BMF i desperately need more friends⠀⠀ᘏ⑅ᘏ
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffdbeb&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&redirect=true)
 
-<img src="https://komarev.com/ghpvc/?username=holedwelling&style=flat-square&color=ffdef1&label=angels🪽" alt="profile view counter" width="60" align="center">
+<img src = "https://64.media.tumblr.com/ce54f6f4344777a6be002991e41b42cd/d6ec2871b0b13c5f-84/s250x400/83b98cd983eb0b6ca3b98ac1fe218094a9ce02a0.gif" width = 250>
