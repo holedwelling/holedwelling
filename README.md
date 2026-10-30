@@ -19,7 +19,7 @@ ${\textsf{\color{#ffe3f1} +all of my green names!!! i appreciate u all ♥︎}}$
 </details>
 </div>
 
-${\textsf{\color{#ffc9e7} PLS BMF i desperately need more friends⠀⠀ᘏ⑅ᘏ}}$
+${\textsf{\color{#ffc9e7} feel free 2 add me⠀⠀ᘏ⑅ᘏ}}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffdbeb&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&redirect=true)
 
