@@ -3,7 +3,7 @@
   
   spoke pony counter: 10
   
-[rentry](https://rentry.co/aralenakamachi) + [nottie](https://princesoma.pythonanywhere.com/spokeishere) <img src="https://i.postimg.cc/zBzfB3FZ/tumblr-7d67f14ebe12b7a73d2742712ead9a76-ca37f9b9-250.gif" width="20"> [ata](https://nullspoke.atabook.org/)
+[rentry](https://rentry.co/polysquad) + [nottie](https://princesoma.pythonanywhere.com/spokeishere) <img src="https://i.postimg.cc/zBzfB3FZ/tumblr-7d67f14ebe12b7a73d2742712ead9a76-ca37f9b9-250.gif" width="20"> [ata](https://nullspoke.atabook.org/)
 
   <img src = "https://file.garden/Zd9aN7mXyXjgTD4g/Untitled40_20260722175625.png" width = 160>
 
