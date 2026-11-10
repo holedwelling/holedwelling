@@ -1,11 +1,11 @@
 <div id="header" align="center">
+<img src = "https://64.media.tumblr.com/884695d7333745c8f21e1862df29690f/7965f603c68fe382-c8/s400x600/dfbfdbbcdafa18b625a1e10fa1d6974293b0c84e.pnj" width = 210>
+  <div align="center">
 
   
 
-  
-<img src = "https://i.postimg.cc/MKHW7s9V/red79.webp" width = 110>
 
-  <img src = "https://pbs.twimg.com/media/HT24mnAbsAAUf75?format=jpg&name=4096x4096" width = 180>
+<img src = "https://pbs.twimg.com/media/HT24mnAbsAAUf75?format=jpg&name=4096x4096" width = 210>
 
 <div align="center">
 <details>
@@ -18,7 +18,7 @@ ${\textsf{\color{#ffe3f1} +all of my green names!!! i appreciate u all ♥︎}}$
 
 </details>
 </div>
-nottie⠀♡⠀rentry
+nottie⠀<img src="https://64.media.tumblr.com/72f8ef9e8286cd2ff2ab33833fd0e978/2f1e9415fdd9c5d6-f0/s75x75_c1/96b3313f87b7470b7ed7750327126617f03754cc.gifv" width="20">⠀rentry
 
 sign my ata or u will die
 
