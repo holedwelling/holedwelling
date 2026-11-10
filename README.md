@@ -3,7 +3,7 @@
   
 
   
-
+<img src = "https://i.postimg.cc/MKHW7s9V/red79.webp" width = 250>
 
   <img src = "https://pbs.twimg.com/media/HT24mnAbsAAUf75?format=jpg&name=4096x4096" width = 180>
 
@@ -18,8 +18,11 @@ ${\textsf{\color{#ffe3f1} +all of my green names!!! i appreciate u all ♥︎}}$
 
 </details>
 </div>
+nottie⠀♡⠀rentry
 
-${\textsf{\color{#ffc9e7} rmking readme bear with me⠀⠀ᘏ⑅ᘏ}}$
+sign my ata or u will die
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=ffdbeb&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31ighietdnv7xzmknmfalzrf6dtm&redirect=true)
+${\textsf{\color{#ffc9e7} letsgo make a baby⠀⠀ᘏ⑅ᘏ}}$
+
+
 
