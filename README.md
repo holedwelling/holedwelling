@@ -3,7 +3,7 @@
   
 
   
-<img src = "https://i.postimg.cc/MKHW7s9V/red79.webp" width = 210>
+<img src = "https://i.postimg.cc/MKHW7s9V/red79.webp" width = 110>
 
   <img src = "https://pbs.twimg.com/media/HT24mnAbsAAUf75?format=jpg&name=4096x4096" width = 180>
 
