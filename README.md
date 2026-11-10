@@ -5,7 +5,7 @@
   
 [rentry](https://rentry.co/polysquad) + [nottie](https://princesoma.pythonanywhere.com/cutiespace) <img src="https://i.postimg.cc/zBzfB3FZ/tumblr-7d67f14ebe12b7a73d2742712ead9a76-ca37f9b9-250.gif" width="20"> [ata](https://nullspoke.atabook.org/)
 
-  <img src = "https://i.pinimg.com/736x/ae/fd/d0/aefdd037006749948da809cbfa70b7eb.jpg" width = 160>
+  <img src = "https://pbs.twimg.com/media/HT24mnAbsAAUf75?format=jpg&name=4096x4096" width = 180>
 
 <div align="center">
 <details>
