@@ -18,11 +18,11 @@ ${\textsf{\color{#ffe3f1} +all of my green names!!! i appreciate u all ♥︎}}$
 
 </details>
 </div>
-[nottie](https://princesoma.pythonanywhere.com/cutiespace)⠀<img src="https://64.media.tumblr.com/72f8ef9e8286cd2ff2ab33833fd0e978/2f1e9415fdd9c5d6-f0/s75x75_c1/96b3313f87b7470b7ed7750327126617f03754cc.gifv" width="20">⠀[rentry](https://rentry.co/polysquad)
+i am skateshot connoisseur
 
 sign my [ata](https://nullspoke.atabook.org/) or u will die
 
-${\textsf{\color{#ffc9e7} letsgo make a baby⠀⠀ᘏ⑅ᘏ}}$
+${\textsf{\color{#fa2b59} letsgo make a baby⠀⠀ᘏ⑅ᘏ}}$
 
 
 
