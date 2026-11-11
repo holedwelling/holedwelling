@@ -23,7 +23,7 @@ sign [ata](https://nullspoke.atabook.org/) for ${\text{\color{#b8e9f7}sweet trea
     <tr><td align="center">
    <p align="center">
 <br> #pirates4ever<br><a href="https://github.com/vodkasour">@vodkasour </a> <br><a href="https://github.com/amourresonance">@amourresonance</a> <br><a href="https://github.com/divearchive">@divearchive</a> <br><a href="https://github.com/emuuotor1">@emuuotor1</a> <br><a href="https://github.com/miraclewishes">@miraclwishes</a> <br><a href="https://github.com/sakiskeyboard">@sakiskeyboard</a> <br>
-     <br> dear friends ♡<br><a href="https://github.com/monsterguts">@monsterguts </a> <br><a href="https://github.com/polysho">@polysho</a> <br><a href="https://github.com/KAMISHIROH">@KAMISHIROH</a> <br><a href="https://github.com/Honikker">@Honikker</a> <br><a href="https://github.com/incubaby">@incubaby</a> <br><a href="https://github.com/jubiIationlee">@jubiIationlee</a> <br>+ green names && more<br>  
+     <br> dear friends ♡<br><a href="https://github.com/monsterguts">@monsterguts </a> <br><a href="https://github.com/polysho">@polysho</a> <br><a href="https://github.com/KAMISHIROH">@KAMISHIROH</a> <br><a href="https://github.com/Honikker">@Honikker</a> <br><a href="https://github.com/incubaby">@incubaby</a> <br><a href="https://github.com/jubiIationlee">@jubiIationlee</a> <br>+ green names & more <br>  
     </td></tr></caption></table>
   </details>
   
