@@ -11,7 +11,7 @@
 
 ${\text{\color{#fa2b59}(:̲̅:̲̅:̲̅[̲̅:♡:]̲̅:̲̅:̲̅:̲̅)}}$ [rentry](https://rentry.co/hihigh) ⧓ [fluffle](https://fluffle.cc/nctwish) <img src="https://static.wikitide.net/phightingwiki/1/15/Sticker_vamoopy_Right_In_Their_Face.png" width="30"><img src="https://static.wikitide.net/phightingwiki/c/c9/Sticker_vamoopy_Right_In_My_Face.png" width="30">
 
-sign [ata](https://nullspoke.atabook.org/) for ${\text{\color{#b8e9f7}sweet treats}}$ (ᵔ ҂ ⩊ ⚈)っ
+sign [ata](https://nullspoke.atabook.org/) && [straw](https://bunnycoil.straw.page/) for ${\text{\color{#b8e9f7}sweet treats}}$ (ᵔ ҂ ⩊ ⚈)っ
 
 
 <p align="center">
